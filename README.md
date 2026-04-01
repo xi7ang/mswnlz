@@ -3,7 +3,7 @@
 
 
 - 🐧       QQ群： **1019984660**
-- 📫  大坝资源站： **https://doc.869hr.uk**
+- 📫  资源主页： **https://xi7ang.github.io**
 - 👯 Telegram群： **[https://t.me/tgmShare](https://t.me/tgmShare/5)**
 <p align="center">
 
